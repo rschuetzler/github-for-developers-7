@@ -1,4 +1,4 @@
 - Ryan Schuetzler
 - Likes peanut butter
 - Likes Rocket League
-- Likes blue
+- Likes Cougar blue
